@@ -10,4 +10,6 @@ Your momma's so fat if she was a recursive function she would cause a stack over
 
 Your momma's so fat that if you take a pic of her your camera stores it as a bitmap - @grelement, @fritzy
 
+Yo momma sleeps around so much, your family tree is recursive - @JoshHighland
+
 Merging your momma's branches *always* causes merge conflicts - @HenrikJoreteg
