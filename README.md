@@ -13,3 +13,7 @@ Your momma's so fat that if you take a pic of her your camera stores it as a bit
 Yo momma sleeps around so much, your family tree is recursive - @JoshHighland
 
 Merging your momma's branches *always* causes merge conflicts - @HenrikJoreteg
+
+Your mama's so lame if she was a scripting language she'd be VBA - @grelement
+
+Your mama's so fat if she was a file system she'd be exFAT - @grelement
