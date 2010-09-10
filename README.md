@@ -21,3 +21,5 @@ Your mama's so fat if she was a file system she'd be exFAT - @grelement
 Your mama's so fat that if she was a queryset she'd have to be paginated - @HenrikJoreteg
 
 Your mama's corpulent - @HenrikJoreteg
+
+Your mama's got more chins than http has headers - @grelement
