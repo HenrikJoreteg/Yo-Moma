@@ -23,3 +23,7 @@ Your mama's so fat that if she was a queryset she'd have to be paginated - @Henr
 Your mama's corpulent - @HenrikJoreteg
 
 Your mama's got more chins than http has headers - @grelement
+
+Your mom has so many contributors her fork queue paginates - @rtyler
+
+Your mom's so nasty all the files in her repos have DOS line-endings - @rtyler
